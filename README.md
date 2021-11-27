@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @MrPicto
+- 👋 Hi, I’m hanlin Zhang
 - 👨‍ My english name is orlando.
 - 🇨🇳 My chinese name is Hanlin Zhang. Nice to meet U!!!
 - 👀 I’m interested in product design and really good at it.
