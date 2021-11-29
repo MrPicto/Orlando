@@ -1,6 +1,6 @@
-- 👋 Hi, I’m hanlin Zhang
+- 👋 Hi, Nice to meet U.
 - 👨‍ My english name is orlando.
-- 🇨🇳 My chinese name is Hanlin Zhang. Nice to meet U!!!
+- 🇨🇳 My chinese name is Hanlin Zhang. 
 - 👀 I’m interested in product design and really good at it.
 - 🌱 I’m currently learning C4D.
 - 💞️ I’m looking to collaborate on digital installation art.
