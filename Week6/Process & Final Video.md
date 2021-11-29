@@ -4,7 +4,5 @@
 
 ## Final Video
 
-<img width="829" alt="截屏2021-11-28 下午11 24 47" src="https://user-images.githubusercontent.com/92038037/143790553-98acaa76-b217-4b6d-a07b-626456df5de3.png">
-
 https://user-images.githubusercontent.com/92038037/143790559-9edff5c4-8551-4c51-9510-98c31484aa2c.mp4
 
